@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MasterXdX
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on a video game project
+- 📫 How to reach me : MasterXdX#7220 on discord.
